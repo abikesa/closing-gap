@@ -8,4 +8,4 @@
 
 - [Closing gap](https://utswmed.org/medblog/obesity-medication-weight-program/)
 - Doctoral thesis
-- [Eli Lilly](https://www.nejm.org/doi/pdf/10.1056/NEJMoa2302392)
+- [Eli](https://companiesmarketcap.com/pharmaceuticals/largest-pharmaceutical-companies-by-market-cap/) [Lilly](https://www.nejm.org/doi/pdf/10.1056/NEJMoa2302392)
